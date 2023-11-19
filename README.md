@@ -1,1 +1,0 @@
-# qvs.github.io
